@@ -1,4 +1,4 @@
-Need help seriously
+No idea how to code. Need help seriously
 
 <!---
 22Wright/22Wright is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
