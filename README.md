@@ -1,4 +1,4 @@
-No idea how to code. Need help seriously
+Still no idea how to code. Hope this vibe coding thing works out
 
 <!---
 22Wright/22Wright is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
